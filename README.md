@@ -1,7 +1,7 @@
 # 🎇RecoverSeoul
 
 ## 🎬Trailer
-https://www.youtube.com/watch?v=5NtrzGk04Zc&t=9s
+[https://www.youtube.com/watch?v=5NtrzGk04Zc&t=9s](https://www.youtube.com/watch?v=sjCYPc0zCl8)
 
 ## 🎞Story
 2088년 서울, 세계는 핵전쟁으로 인해 몇 개의 도시를 제외하고는 사람이 살 수 없는 곳이 되었다.  
